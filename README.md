@@ -17,4 +17,5 @@ For questions or collaboration opportunities, please contact me via:
 Email: emm.humbert@gmail.com
 LinkedIn: linkedin.com/in/emmanuelhumbert
 GitHub: github.com/E73web
+Phone: (+33) 06 13 30 57 67
 
